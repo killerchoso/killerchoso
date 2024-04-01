@@ -8,3 +8,5 @@ eli, cyo or wolf . . . *ೃ༄
 </p>
 
 <p align="center"> <img src="https://media.discordapp.net/attachments/789985868370542602/1224434096927805572/Untitled148_20240401200348.png?ex=661d7a1d&is=660b051d&hm=088305041a57b6ecbc06610b2b2f779c6561468022dc6071f7e8f46cde57e08d&=&format=webp&quality=lossless&width=494&height=197">
+
+<p align="center"> <img src="https://media.discordapp.net/attachments/789985868370542602/1224439161529040926/Untitled149_20240401202319.png?ex=661d7ed5&is=660b09d5&hm=3b356bdbfccf7ff1f4a232e8f22425a317deb8983472f665218ada420a498ade&=&format=webp&quality=lossless&width=962&height=388">
