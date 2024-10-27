@@ -3,7 +3,7 @@
 <p align="center"> <img src="https://media.discordapp.net/attachments/789985868370542602/1224422924128358522/Untitled146_20240401191659.png?ex=661d6fb5&is=660afab5&hm=4ebce5ed0b457ac7971b2558cfd40cfe9dfe0ffbc71b791df16709400342f697&=&format=webp&quality=lossless&width=494&height=197">
 
 <p align="center"> 
-eli, lance or eren . . . *ೃ༄
+eli, lance or caelus . . . *ೃ༄
 . . . till's number 1 fan ! 
 </p>
 
